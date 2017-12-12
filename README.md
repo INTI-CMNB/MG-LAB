@@ -22,7 +22,7 @@ la educación técnica secundaria y universitaria.
 De izquierda a derecha: Omar Milano, Delfina Gonzalez, Gonzalo Daniel Magdalena, Nelson Saade y Diego Brengi.
 
 ![Grupo4]( https://raw.githubusercontent.com/brengi/MG-Lab/master/doc/fotos_grupales/MGLAB_Grupo4_2017B.jpg "Grupo 4")
-De izquierda a derecha: Diego Brengi, XX1, XX2, XX3 y Omar Milano.
+De izquierda a derecha: Diego Brengi, Sebastián Ariel Esperanza, Walter Manuel Gómez barrios, Gonzalo Nahuel Medina y Omar Milano.
 
 
 
